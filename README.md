@@ -1,0 +1,1 @@
+# labrinth_knidos_7_kompl
